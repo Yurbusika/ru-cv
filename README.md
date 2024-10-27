@@ -1,0 +1,1 @@
+https://yurbusika.github.io/ru-cv/ru-cv
